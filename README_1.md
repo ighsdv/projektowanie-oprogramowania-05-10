@@ -1,1 +1,2 @@
 laur strycharczuk
+jakub baran
